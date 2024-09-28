@@ -3,7 +3,7 @@ Hi 👋 My name is Pritesh Suthar
 
 I am currently pursuing my Bachelor's Degree in Information Technology from DRS. Kiran & Pallavi Patel Global University.
 
-* 🌍  I'm based in India
+* 🌍  Currently living in India
 * ✉️  You can contact me at [pritesh.suthar247@gmail.com](mailto:pritesh.suthar247@gmail.com)
 
 
